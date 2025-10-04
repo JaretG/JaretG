@@ -8,5 +8,5 @@ I am Jaret Godinez
 - 🤔 I’m looking for help with my coding
 - 💬 Ask me about 
 - 📫 How to reach me: email godinezjaret@gmail.com
-- 😄 Pronouns: He/Him/Them/She/Her Don't care
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like Running
